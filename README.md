@@ -1,2 +1,2 @@
-# tuuguu556.github.io
+# tuguldur0.github.io
 My personal website I'm working on
